@@ -9,6 +9,7 @@
 - [zennyrt](https://www.instagram.com/zennyrt/)
 
 ### 欧美
+- [angelinadanilova](https://www.instagram.com/angelinadanilova/) 
 - [mmr195_](https://www.instagram.com/mmr195_/)
 - []()
 
