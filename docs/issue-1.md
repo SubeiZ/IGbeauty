@@ -7,6 +7,7 @@
 - [chuu_official](https://www.instagram.com/chuu_official/)
 - [deejaysoda](https://www.instagram.com/deejaysoda/)
 - [oao.v](https://www.instagram.com/oao.v/)
+- [oranssi013](https://www.instagram.com/oranssi013/) 
 - [zennyrt](https://www.instagram.com/zennyrt/)
 
 ### 欧美
