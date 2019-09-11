@@ -16,6 +16,7 @@
 - [rachou_pinette](https://www.instagram.com/rachou_pinette/) 法国纹身师
 
 ### 俄罗斯
+- [Angelina Danilova](https://www.instagram.com/angelinadanilova/)
 - [mad.mad.alien](https://www.instagram.com/mad.mad.alien/)
 
 ### 中国 
