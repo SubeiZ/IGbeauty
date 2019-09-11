@@ -17,6 +17,7 @@
 
 ### 俄罗斯
 - [Angelina Danilova](https://www.instagram.com/angelinadanilova/)
+- [dasha taran](https://www.instagram.com/taaarannn/)
 - [Lauren de Graaf](https://www.instagram.com/laurenjdg/)
 - [mad.mad.alien](https://www.instagram.com/mad.mad.alien/)
 - [Nastya Kusakina](https://www.instagram.com/nastyakusakina/)
