@@ -18,6 +18,8 @@
 ### 俄罗斯
 - [Angelina Danilova](https://www.instagram.com/angelinadanilova/)
 - [mad.mad.alien](https://www.instagram.com/mad.mad.alien/)
+- [Nastya Kusakina](https://www.instagram.com/nastyakusakina/)
+
 
 ### 中国 
 - [babe.weng](https://www.instagram.com/babe.weng/) 整容脸
