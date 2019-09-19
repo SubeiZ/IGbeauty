@@ -6,6 +6,7 @@
 - [_bitnara_](https://www.instagram.com/_bitnara_/)
 - [chuu_official](https://www.instagram.com/chuu_official/)
 - [deejaysoda](https://www.instagram.com/deejaysoda/)
+- [jjeung_s2](https://www.instagram.com/jjeung_s2/)
 - [oao.v](https://www.instagram.com/oao.v/)
 - [oranssi013](https://www.instagram.com/oranssi013/) 
 - [zennyrt](https://www.instagram.com/zennyrt/)
