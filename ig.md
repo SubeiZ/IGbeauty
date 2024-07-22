@@ -15,6 +15,8 @@
 - [angelinadanilova](https://www.instagram.com/angelinadanilova/) 
 - [mmr195_](https://www.instagram.com/mmr195_/)
 - [rachou_pinette](https://www.instagram.com/rachou_pinette/) 法国纹身师
+- [jessievard](https://www.instagram.com/jessievard/) 爱尔兰
+
 
 ### 俄罗斯
 - [Anastasia Cebúlska](https://www.instagram.com/theanastasiah/)
